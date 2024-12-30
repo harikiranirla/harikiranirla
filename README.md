@@ -1,5 +1,5 @@
 
-- 👋 Hi, I’m @harikiranirla
+- 👋 Hi, I’m @HARI KIRAN 
 - 👀 I’m interested in ... TO LEARN SOMETHING NEW
 - 🌱 I’m currently learning ... PROGRAMMING
 - 💞️ I’m looking to collaborate on ...
